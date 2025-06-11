@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Jefrina-V
-- 👀 I’m interested in drawing, reading books and listening to podcasts 
+- 👀 I’m more passionate in AI and Python programming language.  
 - 🌱 I’m currently learning my B.Tech in Information Technology 
 - 💞️ I’m looking to collaborate my self with expertise and upskill my self 
 - 📫 How to reach me, Can reach me by LinkedIn 
